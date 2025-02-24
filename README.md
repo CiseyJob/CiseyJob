@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...customs and freight logistics 
 - 💞️ I’m looking to collaborate on ...on my programing journey 
 - 📫 How to reach me ... email jobcisey@gmail.com
-- 😄 Pronouns: ...the
+- 😄 Pronouns: ...them
 - ⚡ Fun fact: ...no fun 
 
 <!---
